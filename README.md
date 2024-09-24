@@ -6,6 +6,16 @@ Although I knew too little of the history mentioned in this book, and also feel 
 
 the gretest takeway is the term *intersubjective reality* the author elaborated about, the concept to summarize a lot of what I have heard and seen recently.
 
+Before this is made up inter-humnan:
+- social status
+- money
+- fame
+- social credit
+These things are reality, cuz they affect us physically. But on the other hand, they are not what you actually need to survive as human being.
+
+Now, the power of intersubejectivy reality has been handled to computer, possibly.
+They would be able to, or, maybe already created inter computer reality.
+
 ### virtual env made up of ilya, gpt, and the author Yuval Noah Harari, and versas the creativity coming from gpt itself.
 It would be an interesting experiment.
 
